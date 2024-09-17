@@ -8,7 +8,7 @@ Are you looking for a digital marketer who specializes in social media and bring
 
 - **🔭 What I'm Up To:**
 
-**Social Media Marketing:**
+**Social Media Management:**
 I create engaging content and strategies to boost your brand’s visibility and interaction on platforms like Facebook and Instagram, helping you connect with your audience effectively.
 
 **Graphic Design for Logos:**
